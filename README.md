@@ -1,2 +1,3 @@
 # smankute
 PAKEITIMAS :)
+dar kartą
